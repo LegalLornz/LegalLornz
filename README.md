@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LegalLornz
-- 👀 I’m interested in matters Web3 and intergrate it with law
-- 🌱 I’m currently learning how AIC is coming for my job
-- 💞️ I’m looking to collaborate on anything legal 
+- 👀 I’m interested in matters Web3 and how to intergrate it with law
+- 🌱 I’m currently learning how to adapt to the tech changes
+- 💞️ I’m looking to collaborate on anything legal and all matters law
 - 📫 How to reach me is through this platform
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Lawyers are always loved
